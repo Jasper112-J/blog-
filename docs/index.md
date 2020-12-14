@@ -1,6 +1,6 @@
 ## Welcome 
 
-take a look around
+
 
 ## About us
 
